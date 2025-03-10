@@ -1,4 +1,3 @@
-🔭 I'm a simple student trying to be a developer 
 
 
 ## 🌐 Socials:
